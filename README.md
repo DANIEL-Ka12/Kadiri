@@ -1,0 +1,2 @@
+# Kadiri
+struggling to survive
